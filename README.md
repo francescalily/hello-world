@@ -9,4 +9,4 @@ The three main things I am interested in is:
 2. Artificial Intelligence 
 3. Interactive websites
 
-*I am very happy to be participating with La Fosse Academy* :joy:
+*I am very happy to be participating with La Fosse Academy* 
